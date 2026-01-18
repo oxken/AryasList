@@ -1,1 +1,2 @@
 - Toto (mort, mais pas tué par Arya)
+- Titi (éliminé par Arya en légitime défense)
